@@ -1,4 +1,4 @@
-Anti Nigthmare Dataset #1
+Anti Nightmare Dataset #1
 
 Data Type : 
 Psychology data to fight planting urge and hatered accumulation.
